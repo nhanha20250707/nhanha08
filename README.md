@@ -16,4 +16,4 @@
 我们的目标是为您提供流畅、无广告的观看体验，确保您每次都能尽情享受精彩的日本AV世界。
 无需付费，立即开始观看，尽享无限乐趣！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/nhanha20250707/nhanha08 ）</span>
